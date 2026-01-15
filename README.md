@@ -1,0 +1,1 @@
+# checklista-till-karaokemaskinen-p-Nilis
